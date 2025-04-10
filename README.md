@@ -26,6 +26,11 @@ POWER BI DATA VISUALIZATION
 
 
 
+![1744313092006 1](https://github.com/user-attachments/assets/c6c1d6f5-72f9-4398-b81f-fd040d7ce1fd)
+
+
+
+
 
 
 
